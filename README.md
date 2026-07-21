@@ -63,7 +63,7 @@ I am continuously improving my skills in:
 
 ## 📫 Contact Me
 - 📧 Email: penafielralfh@gmail.com  
-- 💼 LinkedIn: N/a
+- 💼 LinkedIn: www.linkedin.com/in/ralfh-peñafiel
 - 🌐 Portfolio: N/a  
 
 ---
